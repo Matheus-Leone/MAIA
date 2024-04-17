@@ -1,1 +1,1 @@
-Here there will be projects and its informations about MAIA
+Here there will be MAIA projects and its informations
